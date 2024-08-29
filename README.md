@@ -12,7 +12,7 @@ Bem-vindo ao meu repositório de certificados! Este espaço foi criado para que 
 Se tiver interesse em saber mais sobre minha trajetória ou discutir oportunidades, sinta-se à vontade para entrar em contato comigo:
 
 - **Email**: pedroaguiarbs18@gmail.com
-- **LinkedIn**: [Seu Nome](https://linkedin.com/in/pedroaguiarbs)
+- **LinkedIn**: [Pedro Henrique Aguiar](https://linkedin.com/in/pedroaguiarbs)
 
 ---
 
